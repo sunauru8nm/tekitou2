@@ -1,5 +1,14 @@
-# aieeeeeee
-# zettaizetumei!
-# do-mo sunasun
-# NINJA SLAYER DEATH
-# UWAAAAAAAAAAA
+# tekitou2
+# seyana-
+---
+__sorena-__
+---
+
+---
+
+---
+
+---
+
+---
+
